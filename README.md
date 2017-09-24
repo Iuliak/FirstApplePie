@@ -1,2 +1,2 @@
 # FirstApplePie
-Just looking around
+First look in than look out 
